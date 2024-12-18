@@ -1,3 +1,6 @@
+
+Hi there! 👋 I'm Samima 😊
+
 👨‍💻 Passionate Developer | 🚀 Tech Enthusiast | 🌱 Lifelong Learner
 
 ✨ Always curious and driven by innovation, I thrive on building creative solutions, tackling challenges head-on, and exploring the latest trends in development.
